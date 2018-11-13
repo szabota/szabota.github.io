@@ -1,1 +1,0 @@
-# szabota.github.io
